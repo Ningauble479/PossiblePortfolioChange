@@ -1,2 +1,0 @@
-# PossiblePortfolioChange
-Portfolio idea.
